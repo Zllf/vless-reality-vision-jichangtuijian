@@ -1,4 +1,4 @@
-# 【2026 最新】机场测评推荐 | 千里连接 — 高性价比 VLESS + Reality 跨境加速服务
+# 【2026 最新】机场推荐 | 千里连接 — 高性价比 VLESS + Reality 跨境加速服务
 
 > 测速时间：2026-08-01\
 > 官网：[www.qianlizhu.com](https://www.qianlizhu.com)（永久域名）
